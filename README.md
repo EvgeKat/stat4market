@@ -1,1 +1,1 @@
-# stat4market
+https://EvgeKat.github.io/stat4market/
